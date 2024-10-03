@@ -2,6 +2,6 @@
 
 www.lukaskl.com
 
-instagram.com/lukas.klhf
+www.instagram.com/lukas.klhf.
 
-twitter.com/lukasklff
+www.twitter.com/lukasklff
