@@ -1,5 +1,5 @@
 ### Hi there 👋
 
-www.lukaskl.com
+studying with Tesla in Berlin ⚡
 
-www.twitter.com/lukasklff
+www.lukaskl.com
