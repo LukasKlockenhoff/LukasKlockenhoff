@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello, I'm Lukas 👋
 
 studying with Tesla in Berlin ⚡
 
